@@ -1,3 +1,3 @@
 #THIS IS THE NEXT EXAMPLE
-We are the champions!!!!!
+
 #GOD IS HERE
